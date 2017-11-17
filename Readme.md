@@ -1,4 +1,4 @@
 Kamonchanok Ruangklai
 Nattaporn Thanomwat
-Sutita Chuenoparat
+Sutita Chunoparat
 Panuwat Suthummaros
